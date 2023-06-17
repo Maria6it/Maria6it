@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Maria
 - 👀 I’m interested in Technology
-- 🌱 I’m currently learning in informationtechnology coleg
+- 🌱 I’m currently learning in information technology coleg
 - 💞️ I’m looking to collaborate on this page for you
 - 📫 How to reach me ,my email is barasmaria8@gmail.com
 
